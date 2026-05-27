@@ -1,4 +1,4 @@
-- 📫 Email- nihadjamadar@yahoo.com,
+- 📫 Email- nihadjamadar@gmail.com,
             insta- @jnihadahmed,
             twitter- @nihadjamadar
 
